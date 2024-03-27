@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Rudra
-- 👀 I’m interested in devlopment of my personality
+- 👀 I’m interested in gaining diffrent experience in other subjects
 - 🌱 I’m currently learning web devlopment
 - 💞️ I’m looking to collaborate on paid projects
 - 📫 How to reach me - You can contact me through email (sk307h@gmail.com)
